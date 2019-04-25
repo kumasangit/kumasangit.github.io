@@ -1,1 +1,0 @@
-# kumasangit.github.io
